@@ -1,3 +1,3 @@
 # Modul-2
 
-hi akmal ganteng
+hi akmal ganteng, pinter juga lagi
